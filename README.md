@@ -1,0 +1,1 @@
+# Gold-EA-God-MT5-
